@@ -1,0 +1,1 @@
+Spoiler alert, las fijas no existen :v
